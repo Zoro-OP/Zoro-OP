@@ -7,9 +7,9 @@
 - 💬 Ask me about [digital art](https://www.google.com/search?q=digital+art&sxsrf=ALeKk038fivupdnAy4NgvIEnrySWrfO3fg:1617388964732&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiGkdO1m-DvAhXoxDgGHURdD9IQ_AUoAXoECAIQAw&biw=1920&bih=937) stuffs 😴
 
 - 📫 Reach me:
--       Linkedin- [Shoieb Hossain](https://www.linkedin.com/in/shoaib-hossain-0b4308205/)
--       Facebook- [Shurzo](https://www.facebook.com/shoaibhossain207/)
--       Instagram- [__Shurzo__](https://www.instagram.com/__shurzo__/)
+-       Linkedin [Shoieb Hossain](https://www.linkedin.com/in/shoaib-hossain-0b4308205/)
+-       Facebook [Shurzo](https://www.facebook.com/shoaibhossain207/)
+-       Instagram [__Shurzo__](https://www.instagram.com/__shurzo__/)
 
 - 😄 Pronouns: He/His👨🏻‍🎓
 - ⚡ Fun fact: Try to know me well, you will lost in hell.😈
