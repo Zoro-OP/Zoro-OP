@@ -8,5 +8,5 @@
 
 - 📫 Reach me: [Shoieb Hossain](https://www.linkedin.com/in/shoaib-hossain-0b4308205/)
 - 😄 Pronouns: He/His👨🏻‍🎓
-- ⚡ Fun fact: Try to know me well, you will lost in hell.😈
+- ⚡ Fun fact: Try to know me well, you will definitely lost in hell.😈
 - 📝[Resume](https://drive.google.com/file/d/16wJv4rh4Z3v3F1_di82MYSlmEMYmvd-q/view?usp=sharing)
