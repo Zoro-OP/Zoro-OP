@@ -3,7 +3,7 @@
 - 🔭 I’m currently student at [AIUB](https://www.aiub.edu/)
 - 🌱 I’m currently working on thesis, about Cybersickness Induced by Desktop Reality.
 - 👯 I’m looking to collaborate on some digital art and animation.
-- 🤔 I’m working with [GAO Tek Inc.](https://gaotek.com/) as an engineer intern.
+- 🤔 I’m working with [GAO Tek Inc.](https://gaotek.com/) as an intern.
 - 💬 Ask me about [digital art](https://www.google.com/search?q=digital+art&sxsrf=ALeKk038fivupdnAy4NgvIEnrySWrfO3fg:1617388964732&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiGkdO1m-DvAhXoxDgGHURdD9IQ_AUoAXoECAIQAw&biw=1920&bih=937) stuffs 😴
 
 - 📫 Reach me: [Shoieb Hossain](https://www.linkedin.com/in/shoaib-hossain-0b4308205/)
