@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently student at [AIUB](https://www.aiub.edu/)
 - 🌱 I’m currently working on thesis, about Cybersickness Induced by Desktop Reality.
-- 👯 I’m looking to collaborate on some digital art and animation.
+- 👯 I’m looking to collaborate on some [digital art](https://www.google.com/search?q=digital+art&sxsrf=ALeKk038fivupdnAy4NgvIEnrySWrfO3fg:1617388964732&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiGkdO1m-DvAhXoxDgGHURdD9IQ_AUoAXoECAIQAw&biw=1920&bih=937) and [animation](https://en.wikipedia.org/wiki/Animation#:~:text=Animation%20is%20a%20method%20in,%2Dgenerated%20imagery%20(CGI).).
 - 🤔 I’m working with [GAO Tek Inc.](https://gaotek.com/) as an intern.
 - 💬 Ask me about [digital art](https://www.google.com/search?q=digital+art&sxsrf=ALeKk038fivupdnAy4NgvIEnrySWrfO3fg:1617388964732&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiGkdO1m-DvAhXoxDgGHURdD9IQ_AUoAXoECAIQAw&biw=1920&bih=937) stuffs 😴
 
