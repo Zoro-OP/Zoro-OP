@@ -9,4 +9,4 @@
 - 📫 Reach me: [Shoieb Hossain](www.linkedin.com/in/zoro-op)
 - 😄 Pronouns: He/His👨🏻‍🎓
 - ⚡ Fun fact: Try to know me well, you will definitely lost in hell.😈
-- 📝[Resume](https://drive.google.com/file/d/1H-SBfoOLz7mmowa6g9lpJw_QFXt_LiDF/view?usp=sharing)
+- 📝[Resume](https://drive.google.com/file/d/1QWfCbg3QM7SO2Tv1duYyZG5fUAgfJzEm/view?usp=sharing)
