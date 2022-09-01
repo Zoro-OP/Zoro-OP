@@ -11,4 +11,4 @@
 - 📫 Reach me: [Shoieb Hossain](https://www.linkedin.com/in/zoro-op/?msgControlName=reply_to_sender&msgConversationId=2-ZTBiNTcwMjEtMWFiOS00MjVlLWFkYzUtZGVhZDcxOGFlZTU3XzAxMw%3D%3D&msgOverlay=true)
 - 😄 Pronouns: He/His👨🏻‍🎓
 - ⚡ Fun fact: Try to know me well, you will definitely get lost in hell.😈
-- 📝[Resume](https://drive.google.com/file/d/1QWfCbg3QM7SO2Tv1duYyZG5fUAgfJzEm/view?usp=sharing)
+- 📝[Resume](https://drive.google.com/file/d/1c93iaiYVSyg_NxMggD97kWWhG_Wl1Lsh/view?usp=sharing)
